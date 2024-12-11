@@ -1,1 +1,1 @@
-# satbayevuniversity2
+# satbayevuniversity
